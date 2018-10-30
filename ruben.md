@@ -1,0 +1,1 @@
+A buen entendedor pocas palabras bastan.
