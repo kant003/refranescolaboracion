@@ -1,3 +1,3 @@
 # El refrán
 
-A buen entendedor, pocas palabras bastan.
+Lo bueno si breve, dos veces breve.
