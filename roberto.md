@@ -1,0 +1,2 @@
+### _"Si la vida te da limones creo deberías de preguntarte seriamente por qué lo está haciendo, es que vamos a ver, yo entendería que lo pasases mal o simplemente todo fuese a mejor pero es que el hecho de que la vida misma te otorgue una fruta tan aleatória como los limones me parece un puto cachondeo, no se"_
+# _~Yo_
